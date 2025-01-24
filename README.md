@@ -1,7 +1,3 @@
-Here’s an expanded version of the **README.md** with more creative and engaging text:
-
----
-
 # 🌟 Welcome to [ashokkpal.github.io](https://ashokkpal.github.io/) 🌐  
 
 🎉 **Your Gateway to Creativity, Knowledge, and Innovation** 🎉  
