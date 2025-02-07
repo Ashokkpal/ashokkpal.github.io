@@ -96,7 +96,7 @@ Let’s build something amazing together! Reach out if:
 ### 📧 **Email**: [ashokkpal2094@gmail.com](mailto:ashokkpal2094@gmail.com)  
 ### 🌍 **Website**: [ashokkpal.github.io](https://ashokkpal.github.io/)  
 ### 🐦 **instagram**: [@its_ashookk](https://www.instagram.com/its_ashookk/)  
-### 💼 **LinkedIn**: [Ashok pal](www.linkedin.com/in/ashokpal2094)  
+### 💼 **LinkedIn**: [Ashok pal](https://www.linkedin.com/in/yoursashok/)  
 
 Let’s create something extraordinary! 🚀  
 
